@@ -94,11 +94,11 @@ To establish ShoRu INFO TECHNOLOGY as a trusted digital transformation partner d
 ## Corporate Contact
 
 ShoRu INFO TECHNOLOGY  
-Surveyor Colony, Madurai – 625007  
-Enterprise Email: sobika2742003@gmail.com,
-Support Email: ruban5398@gmail.com 
-support: +91 6384640244  
-Admin: +91 8778584218
+- Surveyor Colony, Madurai – 625007  
+- Enterprise Email: sobika2742003@gmail.com
+- Support Email: ruban5398@gmail.com 
+- support: +91 6384640244  
+- Admin: +91 8778584218
 ---
 
 <p align="center">
